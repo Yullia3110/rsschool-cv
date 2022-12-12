@@ -14,7 +14,7 @@ ____________________________________________________
 
 *Luhansk National Agrarian University*, 2012 *Specialty Finance*
 ___________________________________________________
-######Professional skills
+###### Professional skills
 15 years of experience in banking and insurance. 
 Creation and management of projects and team.
 Communication skills. Willingness to develop and explore new opportunities.
